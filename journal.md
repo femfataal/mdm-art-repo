@@ -1,6 +1,11 @@
 ## Entry 17/09 - work ##
 Set up the colour palette.
 
+made a very crude outline. The following has to be done: 
+- estate, stable, path and cliff
+- ornante gates
+- scene setting, lighting and vibe
+- 
 ## Entry 17/09 - pre work ##
 Did not do anything over the weekend. Quelle surprise, so now I am just going to treat it as work. I hope to be able to set up a vague sketch in the next 90 minutes
 
