@@ -1,3 +1,6 @@
+## Entry 17/09 - work ##
+Set up the colour palette.
+
 ## Entry 17/09 - pre work ##
 Did not do anything over the weekend. Quelle surprise, so now I am just going to treat it as work. I hope to be able to set up a vague sketch in the next 90 minutes
 
