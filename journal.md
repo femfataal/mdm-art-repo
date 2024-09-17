@@ -1,3 +1,6 @@
+## Entry 7:13 ##
+line out is done now on to the gate. Could I have done a better job? Certainly. But I can fix some of it when colouring and shading
+
 ## Entry 17/9 7:09 ##
 continuing to work on the line out, after which things should get easier. Meanwhile, I am getting mad at myself that I should have done this ages ago, and how am I supposed to do the whole thing in less than 3 hours. Anyways, we struggle on with my disability of being able to draw a tree and refusal to look it up. 
 
