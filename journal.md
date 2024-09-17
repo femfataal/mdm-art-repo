@@ -5,7 +5,20 @@ made a very crude outline. The following has to be done:
 - estate, stable, path and cliff
 - ornante gates
 - scene setting, lighting and vibe
-- 
+
+started working: 
+- very first set up done
+ ![image](https://github.com/user-attachments/assets/3978d88f-6f34-4731-b2a2-df26e0ec00be)
+
+- very first sketch done
+  ![image](https://github.com/user-attachments/assets/c0ae48e5-6d4d-4a7d-9ac2-2a05641eb9c5)
+
+ -started working on an outline 
+ ![image](https://github.com/user-attachments/assets/76e80fb5-018e-4032-98dd-0db9593aeb0f)
+
+
+
+
 ## Entry 17/09 - pre work ##
 Did not do anything over the weekend. Quelle surprise, so now I am just going to treat it as work. I hope to be able to set up a vague sketch in the next 90 minutes
 
