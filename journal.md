@@ -1,3 +1,5 @@
+## Entry 7:45 ##
+Line out of gate is done now too. I've cut a couple corners to speed things up. But now it's on to the fun part. Shading. 
 ## Entry 7:13 ##
 line out is done now on to the gate. Could I have done a better job? Certainly. But I can fix some of it when colouring and shading
 
