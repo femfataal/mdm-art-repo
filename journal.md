@@ -1,6 +1,8 @@
 ## Entry 17/09 - pre work ##
 Did not do anything over the weekend. Quelle surprise, so now I am just going to treat it as work. I hope to be able to set up a vague sketch in the next 90 minutes
 
+-make the estate sketch
+
 ## Entry 13/09 ##
 
 Let's see if I can maybe get together an idea for a sketch, on which I can reflect here. As well as maybe a very first outline. Or, best case scenario do one full illustration, but with commits in between. 
