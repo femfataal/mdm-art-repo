@@ -1,7 +1,17 @@
 ## Entry 17/09 - pre work ##
 Did not do anything over the weekend. Quelle surprise, so now I am just going to treat it as work. I hope to be able to set up a vague sketch in the next 90 minutes
 
--make the estate sketch
+- make the estate sketch
+  - estate has wrought iron gates
+  - stables to the left
+  - three tiered fountain in the middle
+  - curated path leading to a cliff to the right
+  - main building has 2 stories
+  - marble pillars and carvings
+  - wooden doors
+  - gothic horror
+  - (curtain flapping in the wind on the first floor & shadow holding a weapon)
+  - 
 
 ## Entry 13/09 ##
 
