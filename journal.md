@@ -1,7 +1,10 @@
 ## Entry 10:32 18/9 ##
 Back to the grind and the base colour. 
 10:53 figure I needed to make the estate redder to catch the eye better
+
 10: 20 base colour is done
+
+11:35 doing shading, still hate everything about this, but we struggle on. It'll be okay in the end. I hate that I worked myself in such a massive time crunch. 
 
 ## Entry 8:23 ##
 still working on the base colour, but I have to stop because I'm tired as hell. I'll have to finish it tomorrow. RIght now we're still at the stage of: I hate everything about this, but I know once I start adding detail and shade, it'll come together again. Thinking of draining the colour out in post to give it a bit more of a horror-y look
