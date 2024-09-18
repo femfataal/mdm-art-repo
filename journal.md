@@ -1,3 +1,6 @@
+## Entry 8:23 ##
+still working on the base colour, but I have to stop because I'm tired as hell. I'll have to finish it tomorrow. RIght now we're still at the stage of: I hate everything about this, but I know once I start adding detail and shade, it'll come together again. Thinking of draining the colour out in post to give it a bit more of a horror-y look
+
 ## Entry 7:45 ##
 Line out of gate is done now too. I've cut a couple corners to speed things up. But now it's on to the fun part. Shading. 
 ## Entry 7:13 ##
