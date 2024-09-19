@@ -1,3 +1,8 @@
+## Entry 3:09 19/9 ##
+very much behind on the first one, but maybe I can squeeze out one artwork in 1 session. 
+- One image of a character or characters that were played by the party
+I can probably do Morbli as a creature and Morbli as a door in only a couple hours or so, and then back to the main quest. 
+
 ## Entry 10:32 18/9 ##
 Back to the grind and the base colour. 
 10:53 figure I needed to make the estate redder to catch the eye better
