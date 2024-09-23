@@ -6,13 +6,27 @@ Back to the grind and the base colour.
 
 11:35 doing shading, still hate everything about this, but we struggle on. It'll be okay in the end. I hate that I worked myself in such a massive time crunch. 
 
+![image](https://github.com/user-attachments/assets/b34e79e6-2465-4129-bb4a-3adb4ba32155)
+
+
 ## Entry 8:23 ##
 still working on the base colour, but I have to stop because I'm tired as hell. I'll have to finish it tomorrow. RIght now we're still at the stage of: I hate everything about this, but I know once I start adding detail and shade, it'll come together again. Thinking of draining the colour out in post to give it a bit more of a horror-y look
 
+![image](https://github.com/user-attachments/assets/006962a6-bf60-4cd2-ad68-a8710528ece4)
+
+![image](https://github.com/user-attachments/assets/a6847aa8-48cf-49b3-bb78-a1614108b446)
+
+
 ## Entry 7:45 ##
 Line out of gate is done now too. I've cut a couple corners to speed things up. But now it's on to the fun part. Shading. 
+
+![image](https://github.com/user-attachments/assets/9d440630-0f67-469f-bba4-a994b1596c5f)
+
 ## Entry 7:13 ##
 line out is done now on to the gate. Could I have done a better job? Certainly. But I can fix some of it when colouring and shading
+ 
+![image](https://github.com/user-attachments/assets/6da24eb3-8e02-4bee-a447-80db35d800f4)
+
 
 ## Entry 17/9 7:09 ##
 continuing to work on the line out, after which things should get easier. Meanwhile, I am getting mad at myself that I should have done this ages ago, and how am I supposed to do the whole thing in less than 3 hours. Anyways, we struggle on with my disability of being able to draw a tree and refusal to look it up. 
