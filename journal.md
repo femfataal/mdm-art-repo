@@ -1,3 +1,8 @@
+## Entry 4/10 ##
+
+I have a sort of rough draft, that I completed about a week ago. I am currently stuck in the most boring meeting of my life, hence the github updates. I might be able to do the monster sketch soon, as well as the other one over the weekend. Then I can send that and have one final week for final edits. 
+My God, this meeting is boring. I'll probably go for a goblin-ish look mixed with that biology visual style. 
+
 ## Entry 10:32 18/9 ##
 Back to the grind and the base colour. 
 10:53 figure I needed to make the estate redder to catch the eye better
