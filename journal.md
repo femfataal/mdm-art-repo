@@ -4,6 +4,8 @@ continuing on the Morbly sketch. I now put github on my phone, which makes life 
 
 17:33 : I think I have most of the outline complete. It's a little hard to get the right experession and mix of cute and horror that I think Scott would appreciate. I'm working in the sun in lafotaine, which is making the overall experience much, much better
 
+17:58 outline complete, once again I hate everything. 
+
 ## Entry 4/10 ##
 
 I have a sort of rough draft, that I completed about a week ago. I am currently stuck in the most boring meeting of my life, hence the github updates. I might be able to do the monster sketch soon, as well as the other one over the weekend. Then I can send that and have one final week for final edits. 
