@@ -2,6 +2,8 @@
 
 continuing on the Morbly sketch. I now put github on my phone, which makes life easier. I can't be bothered in making screenshots and documenting more. I don't necessarily like having to log everytime I change a minor detail like a shoulder or what not. But sofar I have taken the standard goblin design, changed the proportions a bit, and now I'm going to do a first outline. I'm feeling somewhat positive about it all, and I might be able to get it done today. 
 
+17:33 : I think I have most of the outline complete. It's a little hard to get the right experession and mix of cute and horror that I think Scott would appreciate. I'm working in the sun in lafotaine, which is making the overall experience much, much better
+
 ## Entry 4/10 ##
 
 I have a sort of rough draft, that I completed about a week ago. I am currently stuck in the most boring meeting of my life, hence the github updates. I might be able to do the monster sketch soon, as well as the other one over the weekend. Then I can send that and have one final week for final edits. 
