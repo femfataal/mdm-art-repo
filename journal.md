@@ -6,6 +6,8 @@ continuing on the Morbly sketch. I now put github on my phone, which makes life 
 
 17:58 outline complete, once again I hate everything. 
 
+18:07 the sun has gone down in the park, so now I have to relocate. I do feel like I'm getting the hang of procreate again, and that I was quite rusty for the first drawing. Feeling relatively positive
+
 ## Entry 4/10 ##
 
 I have a sort of rough draft, that I completed about a week ago. I am currently stuck in the most boring meeting of my life, hence the github updates. I might be able to do the monster sketch soon, as well as the other one over the weekend. Then I can send that and have one final week for final edits. 
