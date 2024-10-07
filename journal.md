@@ -2,6 +2,9 @@
 
 I should probably write longer commit messages instead of longer journal enteries? Actually I'm not sure. Still working on the colouring. I'm starting to dislike it a lot but we'll see.
 
+21:04
+okay it doesnt look quite the way I would want it to, but I don't hate it either. It could pass as bad work. But I can just keep adding details. 
+
 ## entry 5/10 ##
 
 continuing on the Morbly sketch. I now put github on my phone, which makes life easier. I can't be bothered in making screenshots and documenting more. I don't necessarily like having to log everytime I change a minor detail like a shoulder or what not. But sofar I have taken the standard goblin design, changed the proportions a bit, and now I'm going to do a first outline. I'm feeling somewhat positive about it all, and I might be able to get it done today. 
