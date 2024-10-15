@@ -1,3 +1,7 @@
+## entry 15/10 ##
+
+Still going and need to deliver something tonight. Morbly is pretty much done. Estate needs major touchup and then I want to make the smoking skeleton sketch. Let's see how far I can get.
+
 ## entry 6/10 ##
 
 I should probably write longer commit messages instead of longer journal enteries? Actually I'm not sure. Still working on the colouring. I'm starting to dislike it a lot but we'll see.
