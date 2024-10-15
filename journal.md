@@ -8,6 +8,8 @@ Still going and need to deliver something tonight. Morbly is pretty much done. E
 
 15:27 through adding the halftone filters, things are starting to look better. I'll have to move on to the final one so I can make it tonight. I'm really sorry for delivering bad work. 
 
+18:47 okay I think I figured out a consistent look. Going with hakf tone newspaper kinda vibes. I feel much better and work is going nuch faster now
+
 ## entry 6/10 ##
 
 I should probably write longer commit messages instead of longer journal enteries? Actually I'm not sure. Still working on the colouring. I'm starting to dislike it a lot but we'll see.
