@@ -6,6 +6,8 @@ Still going and need to deliver something tonight. Morbly is pretty much done. E
 
 14:48 added more filters, this is getting better. Estate is still a mess
 
+15:27 through adding the halftone filters, things are starting to look better. I'll have to move on to the final one so I can make it tonight. I'm really sorry for delivering bad work. 
+
 ## entry 6/10 ##
 
 I should probably write longer commit messages instead of longer journal enteries? Actually I'm not sure. Still working on the colouring. I'm starting to dislike it a lot but we'll see.
