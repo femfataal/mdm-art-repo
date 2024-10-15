@@ -1,6 +1,10 @@
+
+
 ## entry 15/10 ##
 
 Still going and need to deliver something tonight. Morbly is pretty much done. Estate needs major touchup and then I want to make the smoking skeleton sketch. Let's see how far I can get.
+
+14:48 added more filters, this is getting better. Estate is still a mess
 
 ## entry 6/10 ##
 
