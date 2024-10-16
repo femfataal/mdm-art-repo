@@ -1,4 +1,6 @@
+## Entry 16/10 ##
 
+FInally got it done and over with. My God. So what have we learned along the way? The mood board did help steer the initial direction, and the final product is vaguely related to it but I need more in between vision steps to prevent me from going like: this is too ugly to finish. Also playing around with the settings helped a lot, and there is still way too much I should and could learn about Procreate. 
 
 ## entry 15/10 ##
 
